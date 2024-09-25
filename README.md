@@ -4,4 +4,4 @@
 
 >[!WARNING]
 >
->SPOV GONE BYE
+>if you or spov use sin
