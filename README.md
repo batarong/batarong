@@ -1,9 +1,9 @@
-# PLEASE  LEAVE
-## ITS A SIN TO STAY HERE LEAVE
+# PLEASE  maybe don't leave
 
 
 >[!WARNING]
 >
->if you or spov here sin
+>if you or spov here dance like batarong
 
 # HWdriver was here
+ltredacted wanted to be here too 
